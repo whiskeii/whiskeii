@@ -2,9 +2,9 @@
 
 ----------------------------------------
 
-![Image](https://github.com/user-attachments/assets/78614cbc-7f9d-4f3c-959e-0509e41a494f)
+![Image](https://github.com/user-attachments/assets/7650f9df-f92f-48bc-a17f-0473a352ae92)
 
-‘ᴏʜ ʟᴀɴᴄᴇʟᴏᴛ..’
+‘ꜱ̶ʜ̶ᴀ̶ᴅ̶ᴏ̶ᴡ̶¿̶?̶¿̶?̶’
 
 ----------------------------------------
 
