@@ -2,7 +2,7 @@
 
 ----------------------------------------
 
-![Image](https://github.com/user-attachments/assets/7650f9df-f92f-48bc-a17f-0473a352ae92)
+![Image](https://github.com/user-attachments/assets/b8724bc6-788b-4e32-8f79-9ae9ccc8d98e)
 
 ‘ᴀᴢᴜʀᴇ..’
 
