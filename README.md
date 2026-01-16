@@ -32,7 +32,7 @@
 
 ----------------------------------------
 
-![Image](https://github.com/user-attachments/assets/fd7dc7ae-1df7-42e4-8bf4-1dcae91ff418)
+![Image](https://github.com/user-attachments/assets/c20ec422-0506-4a10-b3dc-e11d5853de3a)
 
 ɪ ʟᴏᴠᴇ ᴍʏ ʙᴏʏꜰʀɪᴇɴᴅ ᴀɴᴅ ꜰʀɪᴇɴᴅꜱ ꜱᴏ ᴍᴜᴄʜ >ᴗ< 
 
