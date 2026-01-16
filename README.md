@@ -14,7 +14,7 @@
 
 ---------------------------------------
 
-![Image](https://github.com/user-attachments/assets/01b4c630-8ab0-4801-9395-8719990cd3d0)
+![Image](https://github.com/user-attachments/assets/058a69ef-f845-4ed4-bf02-5099e0f8d8bf)
 
 × ʙᴀꜱɪᴄ ᴅɴɪ : ꜱᴀʀᴋ/ᴍᴇʟᴀɴɪᴇ ꜱᴜᴘᴘᴏʀᴛᴇʀꜱ, ʜᴏᴍᴏᴘʜᴏʙɪᴄꜱ, ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ, ᴅᴏᴜʙʟᴇꜱ, ʀᴀᴄɪꜱᴛꜱ, ᴀɴᴅ ʀᴀɢᴇʙᴀɪᴛᴇʀꜱ.
 
